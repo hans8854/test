@@ -1,1 +1,1 @@
-22222222222222222222222222
+Measure and compare your foot-prints by taking pictures
